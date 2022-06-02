@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JiHyeon1004
-- 👀 Look at my notion! https://peaceful-age-111.notion.site/04fb90d3db7646dab7df6ff95ea19a43
+- 👀 Look at my notion!
 - 🌱 I’m a growing Computer Engineer
 - 📫 How to reach me -gus4805@naver.com / gus4805@gmail.com
 
